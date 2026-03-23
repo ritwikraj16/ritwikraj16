@@ -1,6 +1,6 @@
 # Hey, I'm Ritwik 👋
 
-**Senior Product Manager** who got tired of scrolling Instagram to find a good spot.
+**Senior Product Manager** 
 
 ---
 
